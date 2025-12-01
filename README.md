@@ -12,4 +12,4 @@
 
 ---
 
-The excerpt must have a class, regardless if it's one of the mention classes above. The program searches for the first "(", then ")". The text between "(" and ")" would be the class.  
+The excerpt must have a class, regardless if it's one of the mentioned classes above. The program searches for the first "(", then ")". The text between "(" and ")" would be the class.  
