@@ -392,3 +392,32 @@
 * The R'esemblaje (**\[R'\]** word) — Resemblance, Assemblage… — Creations formed using random things from my timeline. Ideas and concepts, mashed together into individuals, forming citizens and cities, roles and journeys. A complex story as it can come from any of over a thousand excerpts I have currently (6/4/25 \- 7:55 pm)
 
 * (STY-"T") **"You need to stop looking for unique things, Maela. Every time… you think of something you thought no one ever did, then boom, you go crying that someone already did it."** // "I never cried because of this\!" // **"Well, you look like you're going to now. Haha…"** // "haha… yeah, very funny…" // **" … you- you aren't actually going to cry, right? … And you said you wanted to be seen as a grown up…"** (4/26/25 \- 7:58 pm)
+
+---
+
+## Hour Initials
+
+(BUB) *\<Welcome to 12:00am (1/1/70 \- 12:00 am)\>* (12/1/25 \- 1:58 am)  
+(BUB) *\<Welcome to 1:00am (1/1/70 \- 1:00 am)\>* (12/1/25 \- 1:58 am)  
+(BUB) *\<Welcome to 2:00am (1/1/70 \- 2:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 3:00am (1/1/70 \- 3:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 4:00am (1/1/70 \- 4:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 5:00am (1/1/70 \- 5:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 6:00am (1/1/70 \- 6:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 7:00am (1/1/70 \- 7:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 8:00am (1/1/70 \- 8:00 am)\>* (12/1/25 \- 1:59 am)  
+(BUB) *\<Welcome to 9:00am (1/1/70 \- 9:00 am)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 10:00am (1/1/70 \- 10:00 am)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 11:00am (1/1/70 \- 11:00 am)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 12:00pm (1/1/70 \- 12:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 1:00pm (1/1/70 \- 1:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 2:00pm (1/1/70 \- 2:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 3:00pm (1/1/70 \- 3:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 4:00pm (1/1/70 \- 4:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 5:00pm (1/1/70 \- 5:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 6:00pm (1/1/70 \- 6:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 7:00pm (1/1/70 \- 7:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 8:00pm (1/1/70 \- 8:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 9:00pm (1/1/70 \- 9:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 10:00pm (1/1/70 \- 10:00 pm)\>* (12/1/25 \- 2:00 am)  
+(BUB) *\<Welcome to 11:00pm (1/1/70 \- 11:00 pm)\>* (12/1/25 \- 2:00 am)
